@@ -1,1 +1,1 @@
-I am dumb as fuck
+Offical JOS Developer
